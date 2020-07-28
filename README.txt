@@ -28,7 +28,7 @@ you can use for pretty much whatever.
 Mail at :
 rajnandani02101997@gmail.com
 
-And the Url link : https://raj210kumari.github.io/rajnandanikumari.github.io/
+And the Url link : https://raj210kumari.github.io/My_portfolio/
 
 
 Credits:
